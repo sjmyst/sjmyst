@@ -1,7 +1,6 @@
 - 👋 Hi, I’m CryptoJaggz
 - 👀 I’m interested in making a boatload of cash in Crypto. :D
-- 🌱 I’m currently learning about all things Crypto.  I'm writing a Crypto book.  I'm trading FC opportunities.
-- 💞️ I’m looking to collaborate on finding Fast Cash opportunities and winning!!  ;)
+- 🌱 I’m currently learning about all things Crypto.  I'm writing a Crypto book.
 - 📫 How to reach me.  If you don't already know, then I probably don't want you to reach me.
 
 <!---
